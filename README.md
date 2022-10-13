@@ -9,6 +9,9 @@ Við fórum svo að festa mótorana og skrifa kóðann.
 Þannig það sem við enduðum með er fígúra sem hreyfðist áfram ef við sjálfir og hauskúpu á fígúrunni með ljós sem virkuðu en hreyfðist ekki með mótornum sem við festum.
 
 Hérna er myndband af fígúrunni að fara áfram.
+
 https://www.youtube.com/shorts/NlPSXpVJ988
+
 Hérna er myndband af fígúrunni.
+
 https://www.youtube.com/shorts/l8gYY6jf6Io
